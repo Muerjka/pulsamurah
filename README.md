@@ -1,2 +1,0 @@
-# pulsamurah
-Manfaatkan dengan benar
